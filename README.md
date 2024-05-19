@@ -72,3 +72,9 @@ https://youtu.be/0XHFHIGTgaM
 Sometimes. I just got to think in 3D, I also think everyone should give it a try. Just use Red and Green Anaglyph 3D glasses to see how I think in 3D and you get the idea.
 
 https://youtu.be/-uWwr79Pu8E
+
+Natural Water Fountain Creepy Video Effects by Joseph C. Richardson
+
+You can create some downright creepy videos, simply by using real water as a special effect.
+
+https://youtu.be/uyGKcEnzS3A
