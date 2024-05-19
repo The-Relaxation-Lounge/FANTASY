@@ -60,3 +60,9 @@ This Knowledge poem will never ever be bought or sold to anyone, which means it 
 Your imagination can take you far. It just depends on how much you let it expand...
 
 https://youtu.be/cHh0Hr3I_Cs
+
+ALIENS AMONG US ALIENS ABOVE US By Joseph C. Richardson
+
+For those who don't believe that aliens are real, you'd better think again. All you need to do is gaze in a mirror at your very own reflection and you will see a real alien appear right before your very eyes.
+
+https://youtu.be/0XHFHIGTgaM
