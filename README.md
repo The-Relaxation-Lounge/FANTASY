@@ -66,3 +66,9 @@ ALIENS AMONG US ALIENS ABOVE US By Joseph C. Richardson
 For those who don't believe that aliens are real, you'd better think again. All you need to do is gaze in a mirror at your very own reflection and you will see a real alien appear right before your very eyes.
 
 https://youtu.be/0XHFHIGTgaM
+
+3D SLIDESHOW VIDEO By Joseph C. Richardson
+
+Sometimes. I just got to think in 3D, I also think everyone should give it a try. Just use Red and Green Anaglyph 3D glasses to see how I think in 3D and you get the idea.
+
+https://youtu.be/-uWwr79Pu8E
