@@ -25,3 +25,9 @@ The only thing that's even real in this video are the Angelfish and the screen w
 Oh, I almost forgot to mention that the candles on the pedestals are real, but the pedestals themselves are fake; everything is fake, but the fish tank window and candles; they are real. I just used cleaver math and special effects to make the viewer believe that it's all real. You could say I have a touch of Disney in me. I just wished I could have been one of Disney's Imagineers is all. lol
 
 https://youtu.be/yOSh3BFeFoc
+
+AQUASTELLAR ONE By Joseph C  Richardson
+
+This (once) was my awesome aquarium I used to own. I loved it, but the tank was so customized that I couldn't replace any type of filter at all. The only way to save my fish from dying, I had to give them back to the pet store freely just so they wouldn't die on me. I have a really soft spot for animals and kids alike. But here is another video you might have to watch on a smaller screen, such as a cellphone or a Sony PSP. The laptop I had just couldn't muster up the rendering speeds I needed for best 1080p quality. Nonetheless, I can only hope you enjoy this awesome, well lit up aquarium. I wanted to create a hundred gallon Led Aquarium with nothing but my favorite fish, which are Angelfish. I just love them so much.
+
+https://youtu.be/o0o9K9DrWq8
